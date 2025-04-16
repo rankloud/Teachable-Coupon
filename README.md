@@ -1,4 +1,3 @@
-# Teachable-Coupon
 # Teachable Coupons: Save Big on Your Online Course Journey 🎓💰
 
 If you're looking to launch an online course or improve your teaching business, Teachable is one of the most popular platforms for creating and selling courses. As an online educator, saving money on the tools you use is essential, and that's where **Teachable coupons** come in. These discounts make it more affordable to use Teachable’s robust features, whether you’re just starting or growing your educational empire. 💡📚
